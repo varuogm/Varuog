@@ -17,7 +17,7 @@ Planning was simple , grab some fresh clothes ,some scooties ,some water bottles
 ## conclusion
 
 It was a memorable trip .we returned back without darshan ps: its another long story.
-The talks that were missing for so long did happen and i feel good.ye hardik and angoor bhi sahi ho jaye then we' go for another cool trip
+The talks that were missing for so long did happen and i feel good.ye hardik and angoor bhi sahi ho jaye then we' go for another cool trip.
 
 
 
