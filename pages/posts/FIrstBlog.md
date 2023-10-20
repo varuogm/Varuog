@@ -8,11 +8,9 @@ author: You
 
 # Intro
 
-Hi i am gourav . 
-i am from kota.as these are my blogs so i keep my small little secrets here in form of blogs .
-i like dogs and hopefully soon will have some in upcoming years when im capable enough to take thier responsbilities.
-i alos lub playing games
-i liked frontend few years ago but now i like backedn more..
+"Hi, I am Gourav. I'm from Kota. Since these are my blogs, I use them to share my small secrets in the form of blog posts. I love dogs and hope to have some in the upcoming years when I am capable enough to take on their responsibilities. I also enjoy playing games. A few years ago, I was more interested in frontend development, but now I have a stronger preference for backend development."
+
+ 
 
 ### Connect me 
 

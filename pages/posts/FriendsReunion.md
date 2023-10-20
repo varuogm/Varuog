@@ -8,8 +8,7 @@ author: You
 
 ## An unknown incoming call
 
-I was sitting at my desk thinking of doing the sprint tasks after 12 before scrum. It was just a normal day and diidnt had much items planned for the second half . most of the times i dont actually pick up call but i got to know that one of my old frined was calling me for a small trip to Khatu shaym that day. i agreed as i wanted to get in touch with all of my college friends .so i asked team to take care of the tasks of the remaining day and left office
-
+I was sitting at my desk, contemplating the sprint tasks scheduled for after 12 PM, just before our scrum meeting. It seemed like an ordinary day, with not many planned tasks for the second half. Most of the time, I don't usually answer calls, but I received a call from an old friend inviting me on a small trip to Khatu Shaym that day. I agreed because I wanted to reconnect with my college friends. So, I informed my team to handle the tasks for the rest of the day and left the office.
 ## PLanninnggg
 
 Planning was simple , grab some fresh clothes ,some scooties ,some water bottles and helmets and we were good to go . 
