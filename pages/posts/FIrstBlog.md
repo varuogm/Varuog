@@ -12,7 +12,7 @@ author: You
 
 ### Connect me 
 
-- Twitter [@Varuogm](https://twitter.com/Varougm)
 - GitHub [@varuogm](https://github.com/varuogm)
+- appleMusix [@CHinese Helicopter](https://music.apple.com/in/playlist/ace-cream/pl.u-NpXmzl7C4zoRBNL)
 
 ![sukuna](https://i.pinimg.com/originals/44/da/38/44da38f950496a6cbac57eb05a10aa39.jpg)
