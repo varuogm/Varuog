@@ -14,7 +14,7 @@ Starting with a quote from Sukuna, I'll begin my rant. Okay.
 
 ![sukuna](https://pbs.twimg.com/media/F2vR4XhaYAA3dIH?format=jpg&name=900x900)
 
-This year's beginning was different from any other year. I was with my friends, experiencing the serenity of Uttrakhand in tents while having OM . (All thanks to Shraddha,Vijay,Khushi,Priti)
+This year's beginning was different from any other year. I was with my friends, experiencing the serenity of Uttrakhand in tents while having OM . (All thanks to Shraddha,Vijay,Khushi,Priti,Sanskar)
 
 Anyway, this isn't the actual item I was talking about, so here it is..." clears throat
 
