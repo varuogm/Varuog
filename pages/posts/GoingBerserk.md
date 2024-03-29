@@ -8,7 +8,7 @@ author: varuog
 
 ![Berserk](https://culturedvultures.com/wp-content/uploads/2023/01/Berserk-785x442.jpg)
 
-## Hey kids Today we will be learning about the `Mark of Sacrifice` 𒉭
+## Hey kids Today we will be learning about the `Mark of Sacrifice` (~i want this tatooo on my hand~)𒉭
 
 You have now been marked with the `Brand of Sacrifice` (𒉭). The lives of those who bear the Brand, from the last drop of blood, to the last moment of your `agonizing death`, will feed life to the new `Child of Darkness`.
 – Void, to the branded Band of the Falcon

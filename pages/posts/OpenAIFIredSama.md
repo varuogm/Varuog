@@ -42,3 +42,8 @@ Im not sure about hes a villain or a superhero but after this incident i do thin
 
 
 chalo koi na lets enjoy tomorrow's IND-AUS finals.
+
+
+# Edit- This was the very first day items and sama has regained his power. 
+
+## Where is my Ilya Sutskever? The world needs him, and it seems that proper care is not being given to him. Make OpenAI truly open and not solely focused on business
