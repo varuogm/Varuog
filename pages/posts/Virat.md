@@ -6,15 +6,14 @@ tag: 'cricket'
 author: kid gourav
 ---
 
-![pat]([https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSQCRWSvpoCYUg5t9OW9EILpdCdWAygsHHbgA&usqp=CAU](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSQCRWSvpoCYUg5t9OW9EILpdCdWAygsHHbgA&usqp=CAU))
+![pat](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRbFIu-DmRydvVVEkIn5NJIBCXoYSRqtgN5lQ&usqp=CAU)
 
 
  My cricketing journey started with yours, Virat. And might retire you as well.
 
-Main kabhi cricket ka banda nahi tha, but you made me fall in love with the game. You made me stay. You made me feel things I didn’t think a sport ever could. Aaj jo mera fav hai , usme tera role hai. Tera junoon, tera attitude, tera “never back down” wala mindset 🥹sab kuch.
+Main kabhi cricket ka banda nahi tha, but you made me fall in love with the game. You made me stay. You made me feel things I didn’t think a sport ever could. 
+Honestly, there’s so much I want to say . I’m not feeling anything lol. it. I used to wonder how will I react? Will I cry? Will I stop watching cricket?Aaj jo mera fav hai , usme tera role hai. Tera junoon, tera attitude, tera “never back down” wala mindset sab kuch.
 
-
-Honestly, there’s so much I want to say . I’m not feeling anything lol. it. I used to wonder how will I react? Will I cry? Will I stop watching cricket?
 
 But aaj… I just feel numb. Khali sa lag raha hai. It’ll take time to sink in.
 
@@ -38,7 +37,7 @@ For the goosebumps, the shouting-at-2AM moments, the “yes he’s still there, 
 
 people finally getting what they wanted.... a quieter test scene. Congrats now uou have a dull non energetic team ,doing the bare minimum to get themselves in the team no clear spark. I dont blame them but it was YOU who made the standard high . Topping all the charts and achivements gloablly .
 
-AUS dont cover news or published apart from their team ,but even they cherish him as an opponent and dont kiss any updates on thier newspaper .
+AUS dont cover news or published apart from their team ,but even they cherish him as an opponent and dont miss any updates on thier newspaper .
 
 
 when team needed you the most ,you saved us from every grave situation. Thats what the world know about you. 
