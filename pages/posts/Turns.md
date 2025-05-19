@@ -1,19 +1,11 @@
-﻿
 ---
-
 title: turns
-
 date: 2025/05/20
-
-description: math
-
-tag: 'math'
-
+description: maths 
+tag: 'research'
 author: gourav
-
 ---
 
-  
 
 There was a math teacher in my college humble, knowledgeable, and always ready to help. He was one of the few teachers I genuinely admired, a true embodiment of what a teacher should be. He taught in colleges due to financial constraints, but he was exceptionally good at it. At that time, he was unmarried.
 
