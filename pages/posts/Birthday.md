@@ -1,7 +1,6 @@
-﻿
----
+﻿---
 
-title: B irthday week
+title: Birthday week
 
 date: 2025/06/12
 
@@ -10,7 +9,6 @@ description: Wrote this in my fav balcony
 tag: 'im25yay'
 
 author: varuog
-
 ---
 
   
